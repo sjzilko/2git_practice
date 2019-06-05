@@ -1,1 +1,2 @@
 Hello Git and GitHub
+Hello moon, Hello stars, Hello opressive loneliness accompanied with addressing inanimate objects who care little for my existance as fabilic humanoids that I wish in vain would understand me and respond to my presence.
